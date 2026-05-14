@@ -1,4 +1,4 @@
-# 
+# rare Panel for Lunacy for macOS - non-destructive editing and layer styles offers the most advanced Lunacy for macOS panel, with non-destructive editing and layer styles. Ideal
 
 
 
